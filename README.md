@@ -1,1 +1,0 @@
-# STarT-screening-tool
